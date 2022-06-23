@@ -1,0 +1,2 @@
+# examen
+ne sudite strogo
